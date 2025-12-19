@@ -1,0 +1,89 @@
+# Photon Maiden – 4 many colors
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Shall I tell you?
+This is Photon Maiden
+Come on, go reach for the stars
+We only see the future
+And see the new world
+We're always ahead of time
+No one can catch up
+If anyone tryna tell what
+we should and shouldn't do
+None of your concern
+Our soul burns
+Come on, go reach for the stars
+不安はない Just do it, do it
+ここじゃないどこかへ
+跳べる? 跳ぶよ Just do it, do it
+さあ一歩 踏み出すなら
+Now or never
+(Right here, right now)
+(Right here, right now)
+(Right here)
+Challenges make us strong
+Why not come along
+See for yourself
+止まれない止まらないの
+止まれない
+Challenges make us strong
+The journey will be long
+See for yourself
+ここはまだスタートライン
+そう いつだって
+Challenges make us strong
+Have no enemy but myself
+Actions speak louder than words
+Show's about to start
+Sound fills the floor
+A cheer goes up
+My heart beats faster
+Now, let's carve
+"Photon Maiden" here
+決して消えない音と言葉
+Hey girl? 知りたいでしょ
+Hey girl? 知らない場所
+まだゴールじゃない
+悩んでる暇などないの きっと
+誰かの描いた物語じゃ退屈なんだ
+None of your concern
+Our soul burns
+Come on, go reach for the stars
+後悔はない Just do it, do it
+銀河を抜け出して
+飛べる? 飛ぶよ Just do it, do it
+もう一歩 踏み込むなら
+Now or never
+(Right here, right now)
+(Right here, right now)
+(Right here)
+Challenges make us strong
+Why not come along
+See for yourself
+止まれない止まらないの
+止まれない
+Challenges make us strong
+The journey will be long
+See for yourself
+ここはまだスタートライン
+そう いつだって
+Challenges make us strong
+こんなものじゃない
+終わりはここじゃない
+We should make the sounds
+no one has ever heard
+一筋煌めいたいまを 未来へ繋げ
+Challenges make us strong
+Why not come along
+See for yourself
+止まれない止まらないの
+止まれない
+Challenges make us strong
+The journey will be long
+See for yourself
+ここはまだスタートライン
+そう いつだって
+Challenges make us strong
+```
